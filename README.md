@@ -1,2 +1,3 @@
-![njqh](https://file.garden/ZnTTvwEIPj2gHUbn/Untitled91_20260620190630.png)<p align="center">
-[rentry](https://rentry.co/nightsdomain) ✦ [atabook](https://nightsdomain.atabook.org)<p align="center">
+this coding crap high-key pmo
+![logo](https://file.garden/ZnTTvwEIPj2gHUbn/Untitled112_20260630164247.png)
+[ata](atabook.org/nightsdomain) [ren](https://rentry.co/nightsdomain)
