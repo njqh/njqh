@@ -1,7 +1,7 @@
 
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀[ata](https://nightsdomain.atabook.org) ⠀⠀⠀⠀⠀⠀[ren](https://rentry.co/nightsdomain)
+[ata](https://nightsdomain.atabook.org) [ren](https://rentry.co/nightsdomain)
 
-![logo](https://files.catbox.moe/zfqe8l.png) ![logo](https://files.catbox.moe/h4oy5x.png)
+![logo](https://files.catbox.moe/zu9r9a.png)
 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀me and my [sister](https://github.com/crimsonscarzz) ♡
+me and my [sister](https://github.com/crimsonscarzz) ♡
