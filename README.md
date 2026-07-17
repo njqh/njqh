@@ -4,4 +4,4 @@
 
 ![logo](https://files.catbox.moe/hsnj9h.png)
 
-me and my [sister](https://github.com/crimsonscarzz) ♡
+tanku~ [ponytowners](https://github.com/ponytowners), [pt-walk-of-fame](https://github.com/pt-walk-of-fame) ♡
