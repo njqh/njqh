@@ -2,7 +2,7 @@
 
 ![logo](https://file.garden/ZnTTvwEIPj2gHUbn/image-8193-gradientmap.pro.png)
 
-<p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/image-899d-gradientmap.pro.png" width="30%"> </p>
+<p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/image-899d-gradientmap.pro.png" width="30%"> </p> <p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/image-df74-gradientmap.pro.png" width="300"> </p>
 
 <p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/Untitled178_20260731161732.png" width="35%"> </p>
 
