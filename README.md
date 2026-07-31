@@ -1,8 +1,10 @@
-[ata](https://nightsdomain.atabook.org) [ren](https://rentry.co/nightsdomain)
+[ata](https://nightsdomain.atabook.org) [rentry](https://rentry.co/nightsdomain)
 
 ![logo](https://file.garden/ZnTTvwEIPj2gHUbn/image-8193-gradientmap.pro.png)
 
-<img src="https://file.garden/ZnTTvwEIPj2gHUbn/image-899d-gradientmap.pro.png" width="30%">
+<p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/image-899d-gradientmap.pro.png" width="30%"> </p>
+
+<p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/Untitled178_20260731161732.png" width="25%"> </p>
 
 ![](https://file.garden/ZnTTvwEIPj2gHUbn/Untitled174_20260730223706.png)
 
