@@ -6,4 +6,4 @@
 
 ![](https://file.garden/ZnTTvwEIPj2gHUbn/Untitled174_20260730223706.png)
 
-$${\color{black} tanku~ }$$ [ponytowners](https://github.com/ponytowners) [pt-walk-of-fame](https://github.com/pt-walk-of-fame) ♡
+$${\color{black} tanku~ }$$ [ponytowners](https://github.com/ponytowners) [pt-fashion](https://github.com/pt-fashion) [pt-walk-of-fame](https://github.com/pt-walk-of-fame) [pt-hall-of-media](https://github.com/pt-hall-of-media) ♡
