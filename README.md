@@ -1,4 +1,4 @@
-[ata](https://nightsdomain.atabook.org) [rentry](https://rentry.co/nightsdomain)
+[ata](https://nightsdomain.atabook.org) <img src="https://file.garden/ZnTTvwEIPj2gHUbn/Untitled184_20260731203429.png" width="5%"> [rentry](https://rentry.co/nightsdomain) ![](https://komarev.com/ghpvc/?username=njqh&color=403267&label=domainvisitors)
 
 ![logo](https://file.garden/ZnTTvwEIPj2gHUbn/image-8193-gradientmap.pro.png)
 
