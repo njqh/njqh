@@ -2,7 +2,7 @@
 
 <p align="center"><img src="https://komarev.com/ghpvc/?username=njqh&color=403267&label=domainvisitors"> </p>
 
-<p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/image-899d-gradientmap.pro.png" width="30%"> </p>
+<p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/Untitled220_20260817233039.png" width="30%"> </p>
 
 <p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/Untitled214_20260815100226.png" width="35%"> </p>
 <p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/Untitled186_20260801001421.png" width="60%"> </p>
