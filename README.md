@@ -4,9 +4,7 @@
 
 <p align="center"><img src="https://files.catbox.moe/92nwwd.png" width="50%"> </p>
 
-<p align="center"><img src="https://files.catbox.moe/282bp2.png" width="45%"> </p>
-
-[![](https://files.catbox.moe/t7eg92.png)](https://rentry.co/nightsdomain)
+<p align="center"><img src="https://files.catbox.moe/282bp2.png" width="60%"> </p>
 
 ![](https://file.garden/ZnTTvwEIPj2gHUbn/Untitled213_20260815095859.png)
 
