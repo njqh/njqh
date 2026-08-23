@@ -4,7 +4,7 @@
 
 <p align="center"><img src="https://files.catbox.moe/wp3jno.png" width="50%"> </p>
 
-<p align="center"><img src="https://files.catbox.moe/r0nt5m.png" width="45%"> </p>
+<p align="center"><img src="https://files.catbox.moe/282bp2.png" width="45%"> </p>
 
 [![](https://files.catbox.moe/t7eg92.png)](https://rentry.co/nightsdomain) [![](https://files.catbox.moe/yde24f.png)](https://nightsdomain.atabook.org)
 
