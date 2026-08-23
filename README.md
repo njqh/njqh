@@ -6,7 +6,7 @@
 
 <p align="center"><img src="https://files.catbox.moe/282bp2.png" width="45%"> </p>
 
-[![](https://files.catbox.moe/t7eg92.png)](https://rentry.co/nightsdomain) [![](https://files.catbox.moe/yde24f.png)](https://nightsdomain.atabook.org)
+[![](https://files.catbox.moe/t7eg92.png)](https://rentry.co/nightsdomain)
 
 ![](https://file.garden/ZnTTvwEIPj2gHUbn/Untitled213_20260815095859.png)
 
