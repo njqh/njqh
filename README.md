@@ -1,6 +1,6 @@
 <p align="center"><img src="https://file.garden/ZnTTvwEIPj2gHUbn/image-76ea-gradientmap.pro.png" width="40%"> </p>
 
-### <p align="center"><img src="https://komarev.com/ghpvc/?username=njqh&color=010038&label=maggots"> </p>
+<p align="center"><img src="https://komarev.com/ghpvc/?username=njqh&color=010038&label=enlightenments"> </p>
 
 <p align="center"> thanks! </p>
 
